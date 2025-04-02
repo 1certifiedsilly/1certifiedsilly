@@ -19,13 +19,23 @@
    <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white1.gif"> ⟢ ◞  he .  it  . angel
 </div>
 <div align="center">
- ᛝ ◞ 4teen 1/2 . 4/23 <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white1.gif">
+ ᛝ ◞ 4teen 1/2 . 4/23 ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white1.gif">
 </div>
 <div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif">
 </div>
 <div align="center">
-   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/red2.gif"> .ᐟ ◞ Diagnosed SPD
+   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black3.gif"> .ᐟ ◞ Diagnosed SPD
 </div>
-
-[test](https://github.com/user-attachments/assets/fb8f235b-e0a3-442d-b1f2-e3c02ffddc7f)
+<div align="center">
+⟡ ◞ Self-diagnosed AuDHD, Anxiety ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black3.gif">
+</div>
+<div align="center">
+⁽ʷᵒʳᵏⁱⁿᵍ ᵒⁿ ᵈⁱᵃᵍⁿᵒˢⁱˢ!⁾
+</div>
+<div align="center">
+   <img src="https://media.discordapp.net/attachments/1131737988410396822/1356836648008155237/thelazysongg_1.jpeg?ex=67ee0419&amp;is=67ecb299&amp;hm=7e817ecf8a462042d7d9ff60c49a5343557b5ae22ef7102668cb3ddb4402fee8&amp;=&amp;format=webp&amp;width=520&amp;height=173" alt="Image">
+</div>
+<div align="center">
+   <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
+</div>
