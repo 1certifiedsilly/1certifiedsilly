@@ -1,4 +1,3 @@
-## W.I.P
 <div align="center">
 𖧧 𓂃 “ Let this flame burn out the embers of your life as a 𝗚𝗼𝗱. ” ཀ
 </div>
@@ -36,11 +35,21 @@
    <img src="https://media.discordapp.net/attachments/1131737988410396822/1356836648008155237/thelazysongg_1.jpeg?ex=67ee0419&amp;is=67ecb299&amp;hm=7e817ecf8a462042d7d9ff60c49a5343557b5ae22ef7102668cb3ddb4402fee8&amp;=&amp;format=webp&amp;width=520&amp;height=173" alt="Image">
 </div>
 <div align="center">
-  <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black2.gif"> 𐂯 ◞ Furry, Juggalo . Taken<3
+  <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black2.gif"> 𐂯 ◞ Furry, Juggalo . Hedonistic
 </div>
 <div align="center">
   ꩜ ◞ no DNI, I block freely ⌣
 </div>
 <div align="center">
+ 𖣂 ◞ Ryo Asuka & Karasuma Ranmaru(Suzaku) Fictkin ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black2.gif">
+</div>
+<div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
-   </div>
+</div>
+<div align="center">
+ Links
+ 
+</div>
+<div align="center">
+   <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
+</div>
