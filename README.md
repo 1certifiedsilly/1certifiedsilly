@@ -47,8 +47,7 @@
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
 </div>
 <div align="center">
- Links
- 
+  how do I link centered texts ?????????? 🥀
 </div>
 <div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
