@@ -53,7 +53,8 @@
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
 </div>
 <div align="center">
-   <img src="https://github.com/user-attachments/assets/05bcaef3-2b62-47b5-a51b-23bbce7b6c10">
+   <img src="https://github.com/user-attachments/assets/05bcaef3-2b62-47b5-a51b-23bbce7b6c10"> <img src="https://media.discordapp.net/attachments/1131737988410396822/1357128689997058282/favicon-32x32.png?ex=67ef1415&amp;is=67edc295&amp;hm=f42f2fa4c0ed27a2d81e86621020a145c4a1f41855b5ccfb84a0e6a819eb96c6&amp;=&amp;format=webp&amp;quality=lossless&amp;width=40&amp;height=40" alt="Image""> <img src="https://github.com/user-attachments/assets/9c552344-9ea6-4eba-8de1-7fa95eca56b2">
 </div>
-
-
+<div align="center">
+   <img src="https://media.discordapp.net/attachments/1131737988410396822/1357134943066656889/Karasuma_Ranmaru-removebg-preview_1.png?ex=67ef19e8&amp;is=67edc868&amp;hm=8b26dcf4195deb852cff9a082d5c6428157fbe8fdaff77192260481183eafbb8&amp;=&amp;format=webp&amp;quality=lossless&amp;width=447&amp;height=252" alt="Image"">
+</div>
