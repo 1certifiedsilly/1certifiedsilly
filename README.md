@@ -25,5 +25,7 @@
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif">
 </div>
 <div align="center">
-   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/red2.gif"> .ᐟ ◞ Diagnosed [SPD](
+   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/red2.gif"> .ᐟ ◞ Diagnosed SPD
 </div>
+
+[test](https://github.com/user-attachments/assets/fb8f235b-e0a3-442d-b1f2-e3c02ffddc7f)
