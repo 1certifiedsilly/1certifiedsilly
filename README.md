@@ -52,3 +52,8 @@
 <div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
 </div>
+<div align="center">
+   <img src="https://github.com/user-attachments/assets/05bcaef3-2b62-47b5-a51b-23bbce7b6c10">
+</div>
+
+
