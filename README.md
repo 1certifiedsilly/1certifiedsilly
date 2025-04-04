@@ -23,7 +23,7 @@
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif">
 </div>
 <div align="center">
-   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white2.gif"> .ᐟ ◞ Diagnosed SPD
+   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white2.gif"> .ᐟ ◞ Diagnosed SPD . Physically disabled
 </div>
 <div align="center">
 ⟡ ◞ Self-diagnosed AuDHD, Anxiety ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white2.gif">
