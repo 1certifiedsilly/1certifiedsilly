@@ -23,7 +23,7 @@
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif">
 </div>
 <div align="center">
-   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white2.gif"> .ᐟ ◞ Diagnosed SPD . Physically disabled
+   <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white2.gif"> .ᐟ ◞ Diagnosed <a href="https://familydoctor.org/condition/sensory-processing-disorder-spd/">SPD</a> . Physically disabled
 </div>
 <div align="center">
 ⟡ ◞ Self-diagnosed AuDHD, Anxiety ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white2.gif">
@@ -47,7 +47,9 @@
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
 </div>
 <div align="center">
-  how do I link centered texts ?????????? 🥀
+ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black7.gif"> ∿ ◞ <a href="##">Links</a>◞ ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black7.gif">
+<div align="center">
+  <a href="https://github.com/1certifiedsilly/Interests">Interests</a>
 </div>
 <div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
