@@ -1,4 +1,4 @@
-NOTICE= 📵 -> 💻✅
+NOTICE= 📵 -> 💻✅ (idk what happened to my images)
 <div align="center">
  <img src="https://files.catbox.moe/q5zo9k.gif" alt="by brokenbard on tumblr">
 𖧧 𓂃 “ Let this flame burn out the embers of your life as a 𝗚𝗼𝗱. ” ཀ
@@ -20,7 +20,7 @@ NOTICE= 📵 -> 💻✅
    <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white1.gif"> ⟢ ◞  he .  it  . angel
 </div>
 <div align="center">
- ᛝ ◞ 4teen 1/2 . 4/23 ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white1.gif">
+ ᛝ ◞ fifteen . 4/23 ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/white1.gif">
 </div>
 <div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif">
