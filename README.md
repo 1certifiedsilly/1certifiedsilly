@@ -66,12 +66,3 @@ NOTICE= 📵 -> 💻✅ (idk what happened to my images)
 <div align="center">
 <img src="https://files.catbox.moe/ll9q5c.gif" alt="by brokenbard on tumblr"> ཀ " The moment I killed you the Gods took notice. " ཀ <img src="https://files.catbox.moe/hqdtvl.gif" alt="by brokenbard on tumblr">
 </div>
-
-
-
-
-
-
-<div align="right">
-ᵖˢˢᵗ, ᵖˢˢˢˢˢᵗ, ʰᵉʸ ʸᵒᵘ, ʸᵉᵃʰ ʸᴼᵁ 😡 ʰᵐᵘ ⁱᶠ ʸᵒᵘ ⁿᵉᵉᵈ ʰᵉˡᵖ ʷⁱᵗʰ ᵍⁱᵗʰᵘᵇ ᵒʳ ˢᵗʳᵃʷᵖᵃᵍᵉ! :)
-</div>
