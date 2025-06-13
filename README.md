@@ -52,7 +52,7 @@ NOTICE= 📵 -> 💻✅ (idk what happened to my images)
 <div align="center">
  <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black7.gif"> ∿ ◞ <a>Links</a>◞ ⸝⸝ <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black7.gif">
 <div align="center">
-  <a href="https://github.com/1certifiedsilly/Interests">Interests</a> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/grayscale/IMG_4124.png" alt="86"> <a href="https://www.tiktok.com/@inkhasrings_">Tik Tok</a> <img src="https://files.catbox.moe/mg8iry.gif" alt="80"> <a href="https://www.tumblr.com/inklovesjellyfish">Tumblr</a> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/green/IMG_4300.gif" alt="6"> <a href="https://ryoswings.atabook.org">Atabook</a> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/grayscale/a4d95236.gif" alt="e"> <a href="https://ryoswings.straw.page/">StrawPage</a>
+  <a href="https://github.com/1certifiedsilly/Interests">Interests</a> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/grayscale/IMG_4124.png" alt="86"> <a href="https://ryoswings.neocities.org/">Blog</a> <img src="https://files.catbox.moe/mg8iry.gif" alt="80"> <a href="https://www.tumblr.com/inklovesjellyfish">Tumblr</a> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/green/IMG_4300.gif" alt="6"> <a href="https://ryoswings.atabook.org">Atabook</a> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/grayscale/a4d95236.gif" alt="e"> <a href="https://inkhasrings.straw.page/">StrawPage</a>
 </div>
 <div align="center">
    <img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
