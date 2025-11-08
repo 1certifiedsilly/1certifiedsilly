@@ -38,7 +38,7 @@ NOTICE= 📵 -> 💻✅
    <img src="https://64.media.tumblr.com/5dbb6eaccfb1c3c3f85257c385f80f28/8964fb67c85e33d3-42/s500x750/62df93882c530053737307fd73eceaaf7c921643.webp" alt="Image">
 </div>
 <div align="center">
-  <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black2.gif"> 𐂯 ◞ Furry, Juggalo . Wiccan
+  <img src="https://pixelsafari.neocities.org/favicon/fashion/bow/black2.gif"> 𐂯 ◞ Furry, Selfshipper . Wiccan
 </div>
 <div align="center">
   ꩜ ◞ no DNI, I block freely ⌣
