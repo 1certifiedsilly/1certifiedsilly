@@ -8,4 +8,22 @@ Currently working on changing the theme !
 <div align="center">
   <img src="https://i.pinimg.com/1200x/40/27/0a/40270a399747ceb00b82d3fab1c0054e.jpg" width="900">
 </div>
-
+<img align="right" width="400" height="180" alt="https://64.media.tumblr.com/fe4d0f5e9323267bc6ac86de73357575/52839c2621ab1e60-53/s500x750/8bc4c5a6933dac56a16870532f355e8251d59b23.jpg" src="https://64.media.tumblr.com/fe4d0f5e9323267bc6ac86de73357575/52839c2621ab1e60-53/s500x750/8bc4c5a6933dac56a16870532f355e8251d59b23.jpg">
+<div align="right">
+Feel free to sit/cuddle w me !
+</div>
+<div align="right">
+I prob won't talk much, I just like to chill
+</div>
+<div align="right">
+around and work on my ponies .
+</div>
+<div align="right">
+︶⊹︶︶୨୧︶︶⊹︶
+</div>
+<div align="right">
+20+ and 13- DNI
+</div>
+<div align="right">
+Minor - Circa 2010
+</div>
