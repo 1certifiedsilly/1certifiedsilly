@@ -9,3 +9,26 @@ Currently working on changing the theme !
   <img src="https://i.pinimg.com/1200x/40/27/0a/40270a399747ceb00b82d3fab1c0054e.jpg" width="900">
 </div>
 
+<table>
+  <tr>
+    <th>
+      <br>
+      <div align="left">
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    You can sit/cuddle with me, I'm chill, though I don't <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    really talk much <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    ~ <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    20+ & 13- dni <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    Minor !! (circa 2010) <br>
+      <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+    Please don't take inspo from or copy my ponies <br>
+        <img src="https://64.media.tumblr.com/79bfa04cb117b531deef955a812d254f/ba93378786db679e-f8/s75x75_c1/58c9e546b1283d740a915308e1f7cbcb4c9fd73e.gifv">
+      </div>
+       <br>
+    </th>
+  </tr>
+</table>
