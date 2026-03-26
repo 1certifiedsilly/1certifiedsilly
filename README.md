@@ -27,3 +27,7 @@ around and work on my ponies .
 <div align="right">
 Minor - Circa 2010
 </div>
+<img align="left" width="400" height="200" alt="https://i.pinimg.com/736x/2d/75/9a/2d759a0b169aa5bc27449b300aea251a.jpg" src="https://i.pinimg.com/736x/2d/75/9a/2d759a0b169aa5bc27449b300aea251a.jpg">
+<div align="left">
+pls don't copy my ponies or cover me
+</div>
