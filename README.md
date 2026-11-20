@@ -7,3 +7,7 @@ I'm not chronically online enough to care about this
 <div align="center">
 Lovett or Scott , he/hymn/any
 </div>
+
+<div align="center">
+I'm not a fan of CRK anymore
+</div>
