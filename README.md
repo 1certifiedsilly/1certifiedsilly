@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://i.pinimg.com/1200x/1c/4d/03/1c4d03b4accc94a0245b042d76346f7a.jpg" width="500" height="250">
+<img src="https://i.pinimg.com/1200x/3b/ec/e2/3bece2e16f65ba2027504f1dc5ae3950.jpg" width="500" height="250">
 </div>
 <div align="center">
 I'm not chronically online enough to care about this
